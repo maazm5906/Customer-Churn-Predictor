@@ -90,5 +90,5 @@ ChurnGuard helps businesses:
 
 For any inquiries or collaboration:
 **Mubashir Ajaz**
-📧 Email: [mubashirajaz17@gmail.com]
+📧 Email: [maazm5906@gmail.com]
 
